@@ -1,1 +1,1 @@
-Project IDEA PPT -  https://drive.google.com/drive/u/3/folders/1dqjBvGkwWWj3EAGvdQABzyAa5ZKSw-bf
+Project IDEA PPT -  https://docs.google.com/presentation/d/1ngPBi8Eoq12df1DQvPiwxtHgXrZvJDdc/edit?usp=sharing&ouid=100775421523317328059&rtpof=true&sd=true
